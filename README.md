@@ -1,0 +1,2 @@
+# jorda
+Bergona trena kolerda.
